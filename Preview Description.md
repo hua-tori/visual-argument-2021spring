@@ -1,0 +1,3 @@
+What is present in the preview is a the general skeleton of what I wish to achieve. There are 2 hands on screen presumably handing off the heart and clock which represents love and time. There is a simple gradient in the background with bright colors to catch the eye, and the quote "Giving from a place of emptiness only leads to resentment". This will be the main quote in the final draft, as well as numbers to mental health hotlines.
+
+What still needs to be done is the disintegration effect on the things being given, as well as more work on the text seeing that it is in gross basic font right now, and formatted non-aesthetically. Furthermore, the background is a little bland, so I wish to add more depth and interest to it. 
