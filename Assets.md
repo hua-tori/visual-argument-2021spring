@@ -6,4 +6,8 @@
 
 [Time](https://search.creativecommons.org/photos/1437fef0-a34e-4632-a256-1c9d73d9680c) by [Leticia Chamorro](https://www.flickr.com/photos/43088195@N03) is licensed under CC BY 2.0.
 
-[Areal Photo of Sea Wave](https://www.pexels.com/photo/areal-photo-of-sea-wave-3331094/) by [Max Ravier](https://www.pexels.com/@maxravier) is licensed under free to use and no attribution required via Pexels.
+[Areal Photo of Sea Wave](https://www.pexels.com/photo/areal-photo-of-sea-wave-3331094/) by [Max Ravier](https://www.pexels.com/@maxravier) is licensed CC0 via Pexels.
+
+[Ash Cloud](https://pixabay.com/photos/ash-cloud-dramatic-geologic-activity-1867439/) by [Pexels](https://pixabay.com/users/pexels-2286921/) is licensed under CC0 via Pixabay.
+
+[Photography of One US Dollar Banknotes](https://www.pexels.com/photo/photography-of-one-us-dollar-banknotes-545064/) by [Burst](https://www.pexels.com/@burst) is licensed under CC0 by via Pexels.
