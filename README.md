@@ -1,4 +1,4 @@
-Care Fir Yourself to Care for Others
+Care For Yourself to Care for Others
 
 This collage is a PSA of sorts, presenting an engaging art piece that gives information for those seeking mental health help. The image features 2 hands, one at the top left corner and the other at the bottom right. The bottom right hand is shrouded in smoke, whereas the top left hand has a soft pink light emanating from it. The hands can be seen exchanging money, a heart, and a clock, all representing things that are given and sacrificed during a relationship: finances, time, and affection. 
 
